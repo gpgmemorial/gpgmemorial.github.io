@@ -8,21 +8,20 @@ If you would like to speak, please write to Harshita via WhatsApp at +1 (408) 68
 
 Please join us via Zoom. The zoom invitation is below:
 
-```
-Gupta Family is inviting you to a scheduled Zoom meeting.
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Gupta Family is inviting you to a scheduled Zoom meeting.
 
-Topic: G P Gupta's Memorial Service
-Time: Jun 30, 2020 05:00 PM India
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Topic: G P Gupta's Memorial Service
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Time: Jun 30, 2020 05:00 PM India
 
-Join Zoom Meeting
-[https://us02web.zoom.us/j/81784067852?pwd=Ry9RUEJML0p1ZmlyYkkzR011VXJoUT09](https://us02web.zoom.us/j/81784067852?pwd=Ry9RUEJML0p1ZmlyYkkzR011VXJoUT09)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Join Zoom Meeting
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[https://us02web.zoom.us/j/81784067852?pwd=Ry9RUEJML0p1ZmlyYkkzR011VXJoUT09](https://us02web.zoom.us/j/81784067852?pwd=Ry9RUEJML0p1ZmlyYkkzR011VXJoUT09)
 
-Meeting ID: 817 8406 7852
-Password: 031239
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Meeting ID: 817 8406 7852
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Password: 031239
 
-Join by Skype for Business
-[https://us02web.zoom.us/skype/81784067852](https://us02web.zoom.us/skype/81784067852)
-```
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Join by Skype for Business
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[https://us02web.zoom.us/skype/81784067852](https://us02web.zoom.us/skype/81784067852)
+
 
 ### Markdown
 
