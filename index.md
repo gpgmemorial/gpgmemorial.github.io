@@ -1,4 +1,4 @@
-Please join us on Tuesday, June 30 at 5 PM for a memorial service celebrating the life of our beloved G. P. Gupta. The memorial service will be conducted via Zoom and will also be live-streamed. **Please join us from the comfort of your home.**
+Please join us on **Tuesday, June 30 at 5 PM** for a memorial service celebrating the life of our beloved G. P. Gupta. The memorial service will be conducted via Zoom and will also be live-streamed. **Please join us from the comfort of your home.**
 
 If you would like to speak, please write to Harshita via WhatsApp at +1 (408) 680 6572. 
 
@@ -20,8 +20,7 @@ Please join us via Zoom. The zoom invitation is below:
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Join by Skype for Business
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[https://us02web.zoom.us/skype/81784067852](https://us02web.zoom.us/skype/81784067852)
 
-
-### How to Use Zoom
+You can learn more about Zoom [here](http://gpgmemorial.in/zoom)
 
 ### If you don't want to use Zoom or have slow internet
 
