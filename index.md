@@ -22,7 +22,7 @@ Please join us via Zoom. The zoom invitation is below:
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Join by Skype for Business
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[https://us02web.zoom.us/skype/81784067852](https://us02web.zoom.us/skype/81784067852)
 
-You can learn more about how to use zoom [here](http://www.gpgmemorial.in/zoom).
+You can learn more about how to use zoom [here](./zoom.html).
 
 ### If you don't want to use Zoom or have slow internet
 
