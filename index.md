@@ -24,8 +24,8 @@ You can learn more about how to use zoom [here](http://www.gpgmemorial.in/zoom).
 
 ### If you don't want to use Zoom or have slow internet
 
-If you are unable to join us via Zoom, we will also be livestreaming the memorial service via YouTube. 
+If you are unable to join us via Zoom, **we will also be livestreaming the memorial service via YouTube.*** 
 
-We will post the link to the YouTube livestream 15 minutes before the service begins. Please check back here for the link.
+We will post the link to the YouTube livestream 15 minutes before the service begins. **Please check back here for the link.**
 
 If you join us via the livestream, we will not be able to see or hear you, but we hope that you are able to enjoy the tributes to GPG's life. 
