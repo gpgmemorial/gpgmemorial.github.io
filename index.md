@@ -1,5 +1,3 @@
-# Celebrating G.P. Gupta's Life and Legacy
-
 Please join us on Tuesday, June 30 at 5 PM for a memorial service celebrating the life of our beloved G. P. Gupta. The memorial service will be conducted via Zoom and will also be live-streamed. **Please join us from the comfort of your home.**
 
 If you would like to speak, please write to Harshita via WhatsApp at +1 (408) 680 6572. 
