@@ -1,6 +1,6 @@
 Please join us on **Tuesday, June 30 at 5 PM** for a memorial service celebrating the life of our beloved G. P. Gupta. The memorial service will be conducted via Zoom and will also be live-streamed. **Please join us from the comfort of your home.**
 
-If you would like to speak, please write to Harshita via WhatsApp at +1 (408) 680 6572. 
+**If you would like to share a brief tribute to G.P.G.'s life**, please write to Harshita via WhatsApp at +1 (408) 680 6572. 
 
 ## How to Join
 
