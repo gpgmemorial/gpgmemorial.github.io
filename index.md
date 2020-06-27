@@ -2,9 +2,9 @@
 
 Please join us for a memorial service celebrating the life of our beloved G. P. Gupta. The memorial service will be conducted via Zoom and will also be live-streamed. **Please join us from the comfort of your home.**
 
-**Date**: June 30, 2020
-**Time**: Room opens at 4:45 PM, program begins at 5 PM.
-**Location**: Zoom, link below
+**Date**: June 30, 2020  
+**Time**: Room opens at 4:45 PM, program begins at 5 PM.  
+**Location**: Zoom, link below  
 
 **If you would like to share a brief tribute to G.P.G.'s life** during the program, please write to Harshita via WhatsApp at +1 (408) 680 6572. 
 
@@ -14,17 +14,17 @@ Please join us for a memorial service celebrating the life of our beloved G. P. 
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Gupta Family is inviting you to a scheduled Zoom meeting.
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Topic: G P Gupta's Memorial Service
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Time: Jun 30, 2020 05:00 PM India
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Topic: G P Gupta's Memorial Service  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Time: Jun 30, 2020 05:00 PM India  
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Join Zoom Meeting
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[https://us02web.zoom.us/j/81784067852?pwd=Ry9RUEJML0p1ZmlyYkkzR011VXJoUT09](https://us02web.zoom.us/j/81784067852?pwd=Ry9RUEJML0p1ZmlyYkkzR011VXJoUT09)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Join Zoom Meeting  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[https://us02web.zoom.us/j/81784067852?pwd=Ry9RUEJML0p1ZmlyYkkzR011VXJoUT09](https://us02web.zoom.us/j/81784067852?pwd=Ry9RUEJML0p1ZmlyYkkzR011VXJoUT09)  
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Meeting ID: 817 8406 7852
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Password: 031239
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Meeting ID: 817 8406 7852  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Password: 031239  
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Join by Skype for Business
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[https://us02web.zoom.us/skype/81784067852](https://us02web.zoom.us/skype/81784067852)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Join by Skype for Business  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[https://us02web.zoom.us/skype/81784067852](https://us02web.zoom.us/skype/81784067852)  
 
 You can learn more about how to use zoom [here](./zoom.html).
 
