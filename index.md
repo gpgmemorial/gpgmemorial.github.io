@@ -23,9 +23,6 @@ Please join us for a memorial service celebrating the life of our beloved G. P. 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Meeting ID: 817 8406 7852  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Password: 031239  
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Join by Skype for Business  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[https://us02web.zoom.us/skype/81784067852](https://us02web.zoom.us/skype/81784067852)  
-
 You can learn more about how to use zoom [here](./zoom.html).
 
 ### If you don't want to use Zoom or have slow internet
