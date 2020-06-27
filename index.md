@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Celebrating G.P. Gupta's Life and Legacy
 
 You can use the [editor on GitHub](https://github.com/harshita-gupta/gpgmemorial/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
