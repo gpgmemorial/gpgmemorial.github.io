@@ -9,4 +9,4 @@ If you would like to test your internet connection and get familiar with Zoom, y
 You can learn more about in-meeting controls, like how to mute/unmute yourself, turn your video on and off, etc, at [this link](https://support.zoom.us/hc/en-us/articles/360021921032-In-Meeting-Controls): [https://support.zoom.us/hc/en-us/articles/360021921032-In-Meeting-Controls](https://support.zoom.us/hc/en-us/articles/360021921032-In-Meeting-Controls)
 
 
-[Return to main page.](http://www.gpgmemorial.in)
+[Return to main page.](./)
