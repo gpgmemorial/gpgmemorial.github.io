@@ -23,34 +23,12 @@ Please join us via Zoom. The zoom invitation is below:
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[https://us02web.zoom.us/skype/81784067852](https://us02web.zoom.us/skype/81784067852)
 
 
-### Markdown
+### How to Use Zoom
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+### If you don't want to use Zoom or have slow internet
 
-```markdown
-Syntax highlighted code block
+If you are unable to join us via Zoom, we will also be livestreaming the memorial service via YouTube. 
 
-# Header 1
-## Header 2
-### Header 3
+We will post the link to the YouTube livestream 15 minutes before the service begins. Please check back here for the link.
 
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/harshita-gupta/gpgmemorial/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+If you join us via the livestream, we will not be able to see or hear you, but we hope that you are able to enjoy the tributes to GPG's life. 
