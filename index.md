@@ -1,8 +1,28 @@
-## Celebrating G.P. Gupta's Life and Legacy
+# Celebrating G.P. Gupta's Life and Legacy
 
-You can use the [editor on GitHub](https://github.com/harshita-gupta/gpgmemorial/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+Please join us on Tuesday, June 30 at 5 PM for a memorial service celebrating the life of our beloved G. P. Gupta. The memorial service will be conducted via Zoom and will also be live-streamed. **Please join us from the comfort of your home.**
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+If you would like to speak, please write to Harshita via WhatsApp at +1 (408) 680 6572. 
+
+## How to Join
+
+Please join us via Zoom. The zoom invitation is below:
+
+```
+Gupta Family is inviting you to a scheduled Zoom meeting.
+
+Topic: G P Gupta's Memorial Service
+Time: Jun 30, 2020 05:00 PM India
+
+Join Zoom Meeting
+[https://us02web.zoom.us/j/81784067852?pwd=Ry9RUEJML0p1ZmlyYkkzR011VXJoUT09](https://us02web.zoom.us/j/81784067852?pwd=Ry9RUEJML0p1ZmlyYkkzR011VXJoUT09)
+
+Meeting ID: 817 8406 7852
+Password: 031239
+
+Join by Skype for Business
+[https://us02web.zoom.us/skype/81784067852](https://us02web.zoom.us/skype/81784067852)
+```
 
 ### Markdown
 
