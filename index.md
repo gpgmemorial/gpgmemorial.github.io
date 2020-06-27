@@ -6,7 +6,7 @@ Please join us on **Tuesday, June 30 at 5 PM** for a memorial service celebratin
 
 ## How to Join
 
-Please join us via Zoom. The zoom invitation is below:
+**Please join us via Zoom.** The zoom invitation is below:
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Gupta Family is inviting you to a scheduled Zoom meeting.
 
