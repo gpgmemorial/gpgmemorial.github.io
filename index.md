@@ -1,4 +1,4 @@
-![image](https://user-images.githubusercontent.com/67522996/85933558-56e2af80-b8a6-11ea-983d-1563431ca8eb.png)
+![IMG_4725](https://user-images.githubusercontent.com/67522996/85935968-548f4e00-b8c4-11ea-8b4f-802f82fea4ac.jpeg)
 
 Please join us for a memorial service celebrating the life of our beloved G. P. Gupta. The memorial service will be conducted via Zoom and will also be live-streamed. **Please join us from the comfort of your home.**
 
