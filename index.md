@@ -21,6 +21,6 @@ We will post the link of the YouTube livestream 15 minutes before the sabha begi
 
 Please note: *If you join us via the livestream, we will not be able to see or hear you, you will be able to see the program and follow along.*
 
-## [You can participate](https://wa.me/14086806572?text=Hi%2C+I+would+like+to+speak+at+G.P.G.%27s+memorial+service.)
+## [You can participate](https://wa.me/14086806572?text=Hi%2C+I+would+like+to+speak+at+the+Sradhanjali+Sabha+for+Shri.+G.+P.+Gupta.+)
 
-**If you would like to share a brief tribute to Shri G. P. Gupta's life** during the program, please [send us a WhatsApp](https://wa.me/14086806572?text=Hi%2C+I+would+like+to+speak+at+G.P.G.%27s+memorial+service.) **by 5 AM IST on Tuesday, June 30**. 
+**If you would like to share a brief tribute to Shri G. P. Gupta's life** during the program, please [send us a WhatsApp](https://wa.me/14086806572?text=Hi%2C+I+would+like+to+speak+at+the+Sradhanjali+Sabha+for+Shri.+G.+P.+Gupta.+) **by 5 AM IST on Tuesday, June 30**. 
