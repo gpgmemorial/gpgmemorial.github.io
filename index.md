@@ -6,7 +6,7 @@ Please join us for a memorial service celebrating the life of our beloved G. P. 
 **Time**: Room opens at 4:45 PM, program begins at 5 PM.  
 **Location**: Zoom, link below  
 
-**If you would like to share a brief tribute to G.P.G.'s life** during the program, please write to Harshita via WhatsApp at [+1 (408) 680 6572](https://wa.me/14086806572?text=Hi+Harshita%2C+I+would+like+to+speak+at+G.P.G.%27s+memorial+service.) **by 5 AM IST on Tuesday, June 30**. 
+**If you would like to share a brief tribute to G.P.G.'s life** during the program, please [write to Harshita via WhatsApp](https://wa.me/14086806572?text=Hi+Harshita%2C+I+would+like+to+speak+at+G.P.G.%27s+memorial+service.) **by 5 AM IST on Tuesday, June 30**. 
 
 ## How to Join
 
