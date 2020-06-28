@@ -3,7 +3,7 @@
 Please join us for an online Shradhanjali Sabha of our beloved Shri. Gian Prakash Gupta. 
 
 **Date**: Tuesday, June 30, 2020  
-**Time**: Please log in by 5:15 PM, program begins at 5:30 PM (IST).
+**Time**: Please login by 5:15 PM, program begins at 5:30 PM (IST).
 
 The program will be conducted via Zoom and will also be live-streamed.
 
