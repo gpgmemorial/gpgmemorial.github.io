@@ -1,4 +1,4 @@
-![IMG_4725](https://user-images.githubusercontent.com/67522996/85935968-548f4e00-b8c4-11ea-8b4f-802f82fea4ac.jpeg)
+<img src="https://user-images.githubusercontent.com/67522996/85935968-548f4e00-b8c4-11ea-8b4f-802f82fea4ac.jpeg" width="400" height="auto">
 
 Please join us for an online Shradhanjali Sabha of our beloved Shri. Gian Prakash Gupta. 
 
