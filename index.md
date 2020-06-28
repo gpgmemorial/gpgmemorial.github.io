@@ -3,15 +3,15 @@
 Please join us for a Shradhanjali celebrating the life of our beloved G. P. Gupta. The program will be conducted via Zoom and will also be live-streamed. **Please join us from the comfort of your home.**
 
 **Date**: June 30, 2020  
-**Time**: Please arrive by 4:45 PM, program begins at 5 PM.  
+**Time**: Please arrive by 5:15 PM, program begins at 5:30 PM.  
 
 **If you would like to share a brief tribute to G.P.G.'s life** during the program, please [send us a WhatsApp](https://wa.me/14086806572?text=Hi%2C+I+would+like+to+speak+at+G.P.G.%27s+memorial+service.) **by 5 AM IST on Tuesday, June 30**. 
 
 ## Join us via Zoom
 
-**Please join 15 minutes early** and get settled before the program begins at 5 PM. 
+**Please join 15 minutes early** and get settled before the program begins at 5:30 PM. 
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Time: Jun 30, 2020 05:00 PM India  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Time: Jun 30, 2020 05:30 PM India  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Join Zoom Meeting  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[https://us02web.zoom.us/j/81784067852?pwd=Ry9RUEJML0p1ZmlyYkkzR011VXJoUT09](https://us02web.zoom.us/j/81784067852?pwd=Ry9RUEJML0p1ZmlyYkkzR011VXJoUT09)  
