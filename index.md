@@ -17,10 +17,10 @@ The program will be conducted via Zoom and will also be live-streamed.
 
 ## [Livestreaming on YouTube](./)
 
-We will post the link of the YouTube livestream 15 minutes before the sabha begins. **Please check back here for the link.**
+We will post the link of the YouTube livestream 15 minutes before the Sabha begins. **Please check back here for the link.**
 
 Please note: *If you join us via the livestream, we will not be able to see or hear you, you will be able to see the program and follow along.*
 
-## [You can participate](https://wa.me/14086806572?text=Hi%2C+I+would+like+to+speak+at+the+Sradhanjali+Sabha+for+Shri.+G.+P.+Gupta.+)
+## [You can participate](https://wa.me/14086806572?text=Hi%2C+I+would+like+to+speak+at+the+Shradhanjali+Sabha+for+Shri.+G.+P.+Gupta.+)
 
-**If you would like to share a brief tribute to Shri G. P. Gupta's life** during the program, please [__click here to send us a WhatsApp__](https://wa.me/14086806572?text=Hi%2C+I+would+like+to+speak+at+the+Sradhanjali+Sabha+for+Shri.+G.+P.+Gupta.+) **by 5 AM IST on Tuesday, June 30**. 
+**If you would like to share a brief tribute to Shri G. P. Gupta's life** during the program, please [__click here to send us a WhatsApp__](https://wa.me/14086806572?text=Hi%2C+I+would+like+to+speak+at+the+Shradhanjali+Sabha+for+Shri.+G.+P.+Gupta.+) **by 5 AM IST on Tuesday, June 30**. 
