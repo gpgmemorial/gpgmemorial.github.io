@@ -10,12 +10,12 @@ The program will be conducted via Zoom and will also be live-streamed.
 
 ## [Join us via Zoom](https://us02web.zoom.us/j/81784067852?pwd=Ry9RUEJML0p1ZmlyYkkzR011VXJoUT09)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Link: https://us02web.zoom.us/j/81784067852?pwd=Ry9RUEJML0p1ZmlyYkkzR011VXJoUT09](https://us02web.zoom.us/j/81784067852?pwd=Ry9RUEJML0p1ZmlyYkkzR011VXJoUT09)  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Link: [https://us02web.zoom.us/j/81784067852?pwd=Ry9RUEJML0p1ZmlyYkkzR011VXJoUT09](https://us02web.zoom.us/j/81784067852?pwd=Ry9RUEJML0p1ZmlyYkkzR011VXJoUT09)  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Meeting ID: 817 8406 7852  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Password: 031239  
 
-### Livestreaming on YouTube
+## Livestreaming on YouTube
 
 We will post the link of the YouTube livestream 15 minutes before the sabha begins. **Please check back here for the link.**
 
