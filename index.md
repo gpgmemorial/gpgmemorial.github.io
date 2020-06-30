@@ -17,6 +17,6 @@ The program will be conducted via Zoom and will also be live-streamed.
 
 ## [Livestreaming on YouTube](./)
 
-We will post the link of the YouTube livestream 15 minutes before the Sabha begins. **Please check back here for the link.**
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uLZToeMHBT4" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 Please note: *If you join us via the livestream, we will not be able to see or hear you, you will be able to see the program and follow along.*
